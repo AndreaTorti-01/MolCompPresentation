@@ -9,4 +9,4 @@
 ![MolComp (8)](https://github.com/AndreaTorti-01/MolCompPresentation/assets/74457299/3d801391-6a26-4cde-b455-2236f9c91ad1)
 ![MolComp (9)](https://github.com/AndreaTorti-01/MolCompPresentation/assets/74457299/f12ef09e-3a04-4fa0-99dc-96c0f3b2890c)
 ![MolComp (10)](https://github.com/AndreaTorti-01/MolCompPresentation/assets/74457299/2b481b13-757a-4a27-81ae-f2dfaa0293a8)
-![MolComp (11)](https://github.com/AndreaTorti-01/MolCompPresentation/assets/74457299/a5970e5a-8d8b-4b29-8651-95ea1c8ef067)
+![MolComp (12)](https://github.com/AndreaTorti-01/MolCompPresentation/assets/74457299/f5c19122-0715-4729-93e7-00a7142173c3)
